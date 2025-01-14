@@ -1,4 +1,4 @@
-If you want script to be remade or you have some questions you can contact me through discord: _etinem or join discord server dedicated to my work of creation
+If you want script to be remade or you have some questions you can contact me through discord: _etinem or join discord server dedicated to my work of creation https://discord.gg/KE7ezZVDBw
 Any public version updates will be published here
 I do already have paid versions for it which can detect what key to press for skill check it beats skillchecks that change key every time 
 
